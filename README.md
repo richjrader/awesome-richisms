@@ -15,4 +15,6 @@ A list of the things I say over and over in case i forget any.
 
 * It's a process
 
+* You're not _wrong_...
+
 * Dig's a hole and then digs a bigger hole to try and make a point
