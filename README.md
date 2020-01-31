@@ -22,3 +22,8 @@ A list of the things I say over and over in case i forget any.
 * It's a whole thing
 
 * 2:30 is time to go to the dentist
+
+
+# Richisms in Context
+* "You're not riding on my back" -Rich's opinion on horses 1/22/19
+* "Like a baby, you know because you're easily amused." Rich jingling keys at you 1/30/19
