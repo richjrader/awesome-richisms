@@ -20,3 +20,5 @@ A list of the things I say over and over in case i forget any.
 * Dig's a hole and then digs a bigger hole to try and make a point
 
 * It's a whole thing
+
+* 2:30 is time to go to the dentist
