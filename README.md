@@ -23,6 +23,7 @@ A list of the things I say over and over in case i forget any.
 
 * 2:30 is time to go to the dentist
 
+* People are funny things
 
 # Richisms in Context
 * "You're not riding on my back" -Rich's opinion on horses 1/22/19
